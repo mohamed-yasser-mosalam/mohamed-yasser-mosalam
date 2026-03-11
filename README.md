@@ -98,7 +98,7 @@
 ## 🤔 More About Me 
 
 
-### To know more about me, my achievements, visiti my [CV](https://github.com/M0hammedYasser/M0hammedYasser/blob/main/Muhammed-Yasser-Muslim_Resume.pdf) and my [LinkedIn Profile](https://www.linkedin.com/in/muhammad-yasser-9b2736251/)
+### To know more about me, my achievements, visiti my [CV](https://github.com/M0hammedYasser/M0hammedYasser/blob/main/CV.pdf) and my [LinkedIn Profile](https://www.linkedin.com/in/muhammad-yasser-9b2736251/)
 
 ---
 
